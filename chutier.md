@@ -3,6 +3,13 @@
 >Ce document reprend des idées brutes sans aucune forme précise.\
 >Ce sont des notes, des pistes et des remarques qui m'aideront à construire ce roman.
 
+## Bedhiya, La Cité de ceux qui ont tout perdu
+
+Bedhiya est une citée inspirée de Petra.
+Elle est creusée et sculptée directement dans la roche.
+
+La ville dispose d'un système complexe de citernes et de canaux.
+
 ## Démons
 Les démons qui peuplent le désert sont les restes d'une très ancienne armée.
 C'est à cause de leur présence que la région est parfaitement inhabitée.
