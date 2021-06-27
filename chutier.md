@@ -8,7 +8,7 @@ Les démons qui peuplent le désert sont les restes d'une très ancienne armée.
 C'est à cause de leur présence que la région est parfaitement inhabitée.
 La Cité de ceux qui ont tout perdu est déserte depuis cette époque reculée.
 
-Privés de généraux, les démons suivent leurs instincs les plus primaires.
+Privés de généraux, les démons suivent leurs instincts les plus primaires.
 Ils traquent les créatures vivantes, se chamaillent ou s'entretuent mais ne s'unissent pas pour sortir des frontières des terres qu'ils occupent.
 Nombre d'entre-eux se sont enfuis sous les sables et dans les failles obscures pour sombrer dans un profond sommeil. 
 
