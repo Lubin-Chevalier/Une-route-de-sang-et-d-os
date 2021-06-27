@@ -3,12 +3,32 @@
 >Ce document reprend des idées brutes sans aucune forme précise.\
 >Ce sont des notes, des pistes et des remarques qui m'aideront à construire ce roman.
 
+## Quasars, Ceux qui ont tout perdu
+Les quasars sont nés de l'union de céleste et de démons majeurs.
+Ils brillaient tels les étoiles qui illuminent la nuit.
+
+Ni céleste ni démons, ces êtres étaient libres des chaînes du passé.
+Cette liberté leur a permis d'accomplir des choses incroyables et de briller au point d'en faire de l'ombre à leurs géniteurs.
+
+Célestes et démons ont rapidement compris que la fidélité de cette descendance bâtarde était incertaine.
+
+D'un côté, les céleste ce sont détournés des quasars, leur fermant brutalement la porte de leur domaine.
+De l'autre, les démons ont choisi de les combattre pour s'approprier leur force.
+
+C'est ainsi que les quasars déclinèrent.
+Les derniers survivants se mêlèrent aux humains dont ils étaient proches.
+Parmi eux ils étaient des Héros capables d'écrire des légendes.
+
+Au fil des générations leur pouvoir s'est étiolé jusqu'à ce que leur existence disparaisse des mémoires.
+Ils sont ceux qui ont tout perdu.
+
+> Selon wikipédia : "Les quasars sont les entités les plus lumineuses de l'Univers."
+
 ## Bedhiya, La Cité de ceux qui ont tout perdu
 
 Bedhiya est une citée inspirée de Petra.
 Elle est creusée et sculptée directement dans la roche.
-
-La ville dispose d'un système complexe de citernes et de canaux.
+Et dispose d'un système complexe de citernes et de canaux.
 
 ## Démons
 Les démons qui peuplent le désert sont les restes d'une très ancienne armée.
