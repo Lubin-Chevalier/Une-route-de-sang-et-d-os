@@ -9,7 +9,7 @@ Je souhaite lier par le sang les protagosnistes.
 D'abord pour ancrer l'histoire au sein d'une famille et présenter des liens que le lecteur pourra aisément se représenter.
 Ensuite pour former une lignée de quasars.
 
-J'ai choisi de comme base la généalogie mythique de personnages fondateurs de plusieurs peuples en partant de Togarma dont les fils Haïk et Karthlos fonderont respectivement les peuples arméniens et géorgiens.
+J'ai choisi de comme base la généalogie mythique de personnages fondateurs de plusieurs peuples en partant de Togarma dont les fils Haïk (Orion) et Karthlos (Karduk) fonderont respectivement les peuples arméniens et géorgiens.
 
 ## Menace venue de l'Ouest
 Il est nécessaire que l'ennemi qui arrive de l'ouest en dévastant tout sur son passage représente l'annihiliation, la fin de toutes choses.
