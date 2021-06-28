@@ -18,7 +18,7 @@ Et c'est ainsi que l'exil est choisi, parce que ce peuple est le dernier qui peu
 ## Aventures
 Le peuple en exil traverse des terres inhospitalières inhabitées et affronte les horreurs de la nuit.
 La route est un ennemi qui prélève chaque jour son lot de vies.
-La fin et la soif, la chaleur brûlante du jour et le froid mordant de la nuit terrassent indifféremment femmes, enfants, veillards et soldats.
+La fin et la soif, la chaleur brûlante du jour et le froid mordant de la nuit terrassent indifféremment femmes, enfants, vieillards et soldats.
 
 Puis, une nuit la première attaque de démons survient.
 Si ces territoires sont inhabités c'est sans doute à cause de ces créatures dont l'unique raison d'être semble être la traque et la mise à mort des humains.
