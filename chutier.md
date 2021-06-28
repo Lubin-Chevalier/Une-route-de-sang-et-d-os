@@ -3,6 +3,11 @@
 >Ce document reprend des idées brutes sans aucune forme précise.\
 >Ce sont des notes, des pistes et des remarques qui m'aideront à construire ce roman.
 
+## Menace venue de l'Ouest
+Il est nécessaire que l'ennemi qui arrive de l'ouest en dévastant tout sur son passage représente l'annihiliation, la fin de toutes choses.
+A ce stade je pense que qu'il s'agit de quasar chez qui "le sang est particulièrement fort".
+Cet individu aurait des accointances manifestes avec les démons (démon majeur ou autorité naturelle sur des démons mineurs).
+
 ## Quasars, Ceux qui ont tout perdu
 Les quasars sont nés de l'union de céleste et de démons majeurs.
 Ils brillaient tels les étoiles qui illuminent la nuit.
