@@ -3,6 +3,14 @@
 >Ce document reprend des idées brutes sans aucune forme précise.\
 >Ce sont des notes, des pistes et des remarques qui m'aideront à construire ce roman.
 
+## Généalogie
+Je souhaite lier par le sang les protagosnistes.
+
+D'abord pour ancrer l'histoire au sein d'une famille et présenter des liens que le lecteur pourra aisément se représenter.
+Ensuite pour former une lignée de quasars.
+
+J'ai choisi de comme base la généalogie mythique de personnages fondateurs de plusieurs peuples en partant de Togarma dont les fils Haïk et Karthlos fonderont respectivement les peuples arméniens et géorgiens.
+
 ## Menace venue de l'Ouest
 Il est nécessaire que l'ennemi qui arrive de l'ouest en dévastant tout sur son passage représente l'annihiliation, la fin de toutes choses.
 A ce stade je pense qu'il s'agit d'un quasar chez qui "le sang est particulièrement fort".
