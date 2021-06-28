@@ -8,6 +8,11 @@
 ## Situation initiale
 Le roi et ses fils règnent sur des terres
 
+## Prologue
+Un jeune homme s'aventure dans un dédale de fissures et de failles qui courent à travers la roche.
+
+Puis, retentissent les cris d'effroi et d'agonie depuis le labyrinthe accompagnés de hurlement inhumains.
+
 ## Élément perturbateur
 Un cavalier étranger rapporte qu'une menace venue de l'Ouest submerge les royaumes voisins.
 D'autres messagers arrivent, chacun confirme l'ampleur de la menace.
