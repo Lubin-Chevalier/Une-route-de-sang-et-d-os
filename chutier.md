@@ -5,8 +5,26 @@
 
 ## Menace venue de l'Ouest
 Il est nécessaire que l'ennemi qui arrive de l'ouest en dévastant tout sur son passage représente l'annihiliation, la fin de toutes choses.
-A ce stade je pense que qu'il s'agit de quasar chez qui "le sang est particulièrement fort".
+A ce stade je pense qu'il s'agit d'un quasar chez qui "le sang est particulièrement fort".
 Cet individu aurait des accointances manifestes avec les démons (démon majeur ou autorité naturelle sur des démons mineurs).
+
+D'une façon ou d'une autre il doit s'agir de la némésis ultime du cycle.
+
+La rencontre des deux protagonistes doit se produire au début de l'histoire et motiver l'exil.
+La confrontation des deux individus signera la fin du cycle (pour ouvrir les portes de quelque chose de plus vaste ?). 
+
+### Dualité
+Marduk est le nom du quasar qui a choisi de s'allier avec les puissances de la ruine représente l'antithèse du héros.
+
+Les deux quasars représentent les deux faces d'une même pièce.
+Ils incarnent la dualité primordiale du bien et du mal.
+
+Ils sont le reflet de ce que l'autre aurait pu devenir s'il avait fait d'autres choix.
+
+Cette pièce qui guide leur destin est lancée à chaque étape importante de leur vie.
+Aucun des deux n'est complètement blanc ni complètement noir.
+
+A chaque lancer le lecteur devrait pouvoir hésiter entre les deux faces de la pièce.
 
 ## Quasars, Ceux qui ont tout perdu
 Les quasars sont nés de l'union de céleste et de démons majeurs.
