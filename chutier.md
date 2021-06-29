@@ -7,7 +7,7 @@
 https://mythslegendes.com/mythologie-georgienne/pantheon-georgien/
 
 ## Généalogie
-Je souhaite lier par le sang les protagosnistes.
+Je souhaite lier par le sang les protagonistes.
 
 D'abord pour ancrer l'histoire au sein d'une famille et présenter des liens que le lecteur pourra aisément se représenter.
 Ensuite pour former une lignée de quasars.
