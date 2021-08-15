@@ -8,3 +8,14 @@ Lorsqu'un cavalier rapporte que les Puissances de la Ruine arrivent, un roi choi
 La destination de ceux qui abandonnent la terre de leurs ancêtres se trouve quelque part à l'Est.
 Les légendes racontent que loin dans le désert, là où se lève le soleil, une cité attend ceux qui ont tout perdu.
 Au bout d'une route de sang et d'os.
+
+## En 1000 mots
+> Arrivée du cavalier
+
+> Confirmation
+
+> Le choix de l'exil
+
+> Terre brûlée
+
+> Le long d'une route de sang et d'os
