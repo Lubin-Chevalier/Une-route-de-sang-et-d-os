@@ -97,7 +97,7 @@ Lui seul parvint à franchir les montagnes qui isolent le royaume du père de Kh
 > Khos repoussa les démons une dernière fois.
 
 > Pirène rassembla des créatures infernales et les lança pour un ultime assaut.
-> Son action lui coûte beaucoup et Khos le vit vaciller sous l'effort.
+> Son action lui coûtait beaucoup et Khos le vit vaciller sous l'effort.
 
 > Les monstres de Pirène submergèrent les défenseurs le vingt-et-unième jour.
 
