@@ -51,10 +51,16 @@ Le messager remercia le roi en se laissant tomber lourdement sur une chaise.
 "Les Puissances de la Ruine sont de retour" annonça sans ambages le jeune homme blessé.
 
 Une dizaine de jours plus tôt des démons s'étaient rassemblés pour attaquer des villages isolés.
-La chose était tellement inattendue que plusieurs détachements de soldats furent envoyés sur place pour se débarrasser de cette menace.
-Peu de temps après une nuée de créatures déferla sur les royaumes voisins.
+Plusieurs détachements de soldats furent envoyés sur place pour se débarrasser de cette menace.
+Peu de temps après une nuée de créatures déferla sur les royaumes affaiblis par la dispersion de leurs troupes.
 
-Les ethnarques qui vivaient en bonne entente se regroupèrent trois jours plus tard pour faire front commun.
+Les ethnarques rassemblèrent leurs forces trois jours plus tard pour faire front commun.
+Les combats s'intensifièrent et l'ennemi se montrait de plus en plus organisé.
+
+Au huitième jour le père d'Aydin confia des reliques à son fils ainsi qu'un rapport complet qu'il devait transmettre à son oncle Khetos.
+
+Le prince rassembla une douzaine d'hommes et se fraya un chemin à travers les bandes de monstres qui infestaient la région.
+Lui seul parvint à franchir les montagnes qui isolent le royaume du père de Khos.
 
 > Confirmation
 
