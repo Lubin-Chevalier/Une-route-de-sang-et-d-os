@@ -63,6 +63,27 @@ Le prince rassembla une douzaine d'hommes et se fraya un chemin à travers les b
 Lui seul parvint à franchir les montagnes qui isolent le royaume du père de Khos.
 
 ### Confirmation
+> la situation était grave.
+> Le roi envoya deux de ses fils s'informer de la situation.
+
+> Aydin était plus grièvement blessé qu'il ne semblait l'être et ne pouvait pas retourner combattre au près de son père.
+
+> En atteignant les montagnes, Khos et ses hommes rencontrèrent les premiers réfugiés.
+> Les nouvelles sont effrayantes.
+
+> Khos et son frère devaient rassembler davantage d'informations et l'un d'eux au moins devait entrer en contact avec l'état major des ethnarques.
+
+> Les scènes de désolation étaient insupportables.
+> L'ennemi ne venait pour détruire, annihiler, et pas pour conquérir.
+
+> Khos et son frère engagèrent le combat contre une troupe d'hommes alliée à des démons.
+> Le frère de Khos fut fait prisonnier.
+
+> Khos envoya un de ses hommes avertir le roi de la situation
+
+> Alors qu'il tentait de sauver son frère Khos rencontre Pirène, le général ennemi.
+> Pirène exécute le frère de Khos.
+> Khos retourna chez lui sans avoir pu sauver ni venger son frère.
 
 ### Le choix de l'exil
 
