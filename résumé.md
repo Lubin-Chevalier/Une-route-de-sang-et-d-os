@@ -10,7 +10,7 @@ Les légendes racontent que loin dans le désert, là où se lève le soleil, un
 Au bout d'une route de sang et d'os.
 
 ## En 1000 mots
-> Arrivée du cavalier
+### Arrivée du cavalier
 
 Le ciel était bleu et la journée promettait déjà d'être chaude lorsque le prince aperçu la silhouette d'un cavalier.
 les voyageurs étaient rare de si bon matin dans la région.
@@ -62,10 +62,10 @@ Au huitième jour le père d'Aydin confia des reliques à son fils ainsi qu'un r
 Le prince rassembla une douzaine d'hommes et se fraya un chemin à travers les bandes de monstres qui infestaient la région.
 Lui seul parvint à franchir les montagnes qui isolent le royaume du père de Khos.
 
-> Confirmation
+### Confirmation
 
-> Le choix de l'exil
+### Le choix de l'exil
 
-> Terre brûlée
+### Terre brûlée
 
-> Le long d'une route de sang et d'os
+### Le long d'une route de sang et d'os
