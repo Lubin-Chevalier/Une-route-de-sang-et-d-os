@@ -63,7 +63,7 @@ Le prince rassembla une douzaine d'hommes et se fraya un chemin à travers les b
 Lui seul parvint à franchir les montagnes qui isolent le royaume du père de Khos.
 
 ### Confirmation
-> la situation était grave.
+> La situation était grave.
 > Le roi envoya deux de ses fils s'informer de la situation.
 
 > Aydin était plus grièvement blessé qu'il ne semblait l'être et ne pouvait pas retourner combattre au près de son père.
@@ -85,8 +85,8 @@ Lui seul parvint à franchir les montagnes qui isolent le royaume du père de Kh
 > Pirène exécute le frère de Khos.
 > Khos retourna chez lui sans avoir pu sauver ni venger son frère.
 
-### Le choix de l'exil
+### Sacrifice
 
-### Terre brûlée
+### Abandon
 
 ### Le long d'une route de sang et d'os
