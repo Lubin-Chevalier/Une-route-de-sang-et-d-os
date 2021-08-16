@@ -85,7 +85,21 @@ Lui seul parvint à franchir les montagnes qui isolent le royaume du père de Kh
 > Pirène exécute le frère de Khos.
 > Khos retourna chez lui sans avoir pu sauver ni venger son frère.
 
-### Sacrifice
+### Fermer les cols
+> Le roi ferma les cols qui permettaient de franchir les montagnes.
+
+> Khos et plusieurs de ses frères tinrent ces passages.
+> Il firent payer un terrible tribu à leurs ennemis mais se rendirent compte qu'ilsne repousseraient pas indéfini l'ennemi.
+
+#### Trahison
+> Pirène corrompu deux des fils des ethnarques et contribuèrent à prendre deux cols.
+
+> Khos repoussa les démons une dernière fois.
+
+> Pirène rassembla des créatures infernales et les lança pour un ultime assaut.
+> Son action lui coûte beaucoup et Khos le vit vaciller sous l'effort.
+
+> Les monstres de Pirène submergèrent les défenseurs le vingt-et-unième jour.
 
 ### Abandon
 
