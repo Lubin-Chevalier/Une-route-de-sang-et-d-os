@@ -115,3 +115,15 @@ La naissance d'un démon majeur requiert invariablement l'union de deux de ces c
 
 Mais cette naissance coûte aux géniteurs une partie de leur puissance.
 Plus leurs rejetons sont puissants et plus le coût est élevé.
+
+## Vierges jurées, vierges sous serment
+(Wikipédia)
+Une vierge sous serment ou vierge jurée (en albanais burrneshë, de burrë « homme », avec le suffixe féminin -neshë ; ou virgjineshë, « femme vierge ») désigne une femme, généralement albanaise, qui a choisi de vivre comme un homme.
+
+Les vierges sous serment font vœu de chasteté et portent uniquement des vêtements masculins. En contrepartie de ce vœu, elles bénéficient de nombre d'avantages traditionnellement réservés aux hommes.
+
+Ce fait est surtout visible en Albanie, mais il a aussi pu être observé dans d'autres pays des Balkans occidentaux, comme au Kosovo, en Macédoine, en Serbie ou au Monténégro.
+
+Bien que les termes burrneshë et virgjineshë soient majoritaires, ces femmes sont connues sous de multiples autres noms. Ainsi, elles peuvent être appelées mashkull autour de Shkodër, harambasa au Monténégro, tobelija en Bosnie, ostajnica dans les régions serbophones, sadik par les Turcs, etc.
+
+Les vierges sous serment seraient le seul cas en Europe d'encadrement traditionnel et social des concepts de transgenre et de travestissement. Des pratiques similaires n'ont été observées que sur d'autres continents, par exemple parmi les peuples amérindiens.
