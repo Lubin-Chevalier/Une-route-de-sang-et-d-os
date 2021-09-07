@@ -94,8 +94,9 @@ Lui seul parvint à franchir les montagnes qui isolent le royaume du père de Kh
 #### Trahison
 > Pirène corrompu deux des fils des ethnarques et contribuèrent à prendre deux cols.
 
-> Les monstres de Pirène submergèrent les défenseurs le vingt-et-unième jour.
+> Les monstres de Pirène finirent par submerger les défenseurs.
 
 ### Abandon
+> Les combats se prolongèrent dans la plaine.
 
 ### Le long d'une route de sang et d'os
