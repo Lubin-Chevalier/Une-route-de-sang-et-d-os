@@ -5,7 +5,7 @@ Il épouse Mérope après avoir vaincu les démons qui hantent Khios.
 ## Filiation
 Fils de Thorgom
 Frère de Karduk
-Père de Glaukosg
+Père de Glaukos
 Grand-père de Pirene.
 
 ## Histoire
