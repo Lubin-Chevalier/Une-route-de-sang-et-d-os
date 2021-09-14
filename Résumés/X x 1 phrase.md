@@ -3,7 +3,6 @@
 ## En 1 phrase
 C'est l'histoire d'un peuple qui fuit les Puissances de la Ruine.
 
-
 ## Livre 1
 
 ### En 1 phrase
@@ -19,3 +18,8 @@ Khos et ses frères tiennent les cols qui séparent le royaume de leur père le 
 
 #### Résolution
 Khos atteint "la Cité de ceux qui ont tout perdu" tandis que Pirène devient Tyran de Khinthos.
+
+## Livre 2
+
+### En 1 phrase
+Khos assied son autorité sur la région et accueille les réfugiés qui fuient les hordes Pirènes.
