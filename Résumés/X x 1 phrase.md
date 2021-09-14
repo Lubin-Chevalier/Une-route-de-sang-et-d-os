@@ -23,3 +23,8 @@ Khos atteint "la Cité de ceux qui ont tout perdu" tandis que Pirène devient Ty
 
 ### En 1 phrase
 Khos assied son autorité sur la région et accueille les réfugiés qui fuient les hordes Pirènes.
+
+## Livre 3
+
+### En 1 phrase
+la confrontation entre Khos et Pirène décidera de l'avenir des peuples du sable.
