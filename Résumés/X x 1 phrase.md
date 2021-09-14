@@ -7,7 +7,7 @@ C'est l'histoire d'un peuple qui fuit les Puissances de la Ruine.
 ## Livre 1
 
 ### En 1 phrase
-Face à une horde démoniaque Khos guide son peuple en exile vers une Cité perdue. 
+Face à une horde démoniaque un jeune homme guide son peuple en exile vers une Cité perdue. 
 
 ### 3 actes
 
